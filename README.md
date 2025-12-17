@@ -2,7 +2,7 @@
 
 ## Reasons for being Merry
 - Coffe
-- Holidays
+- Holiday
 - Family
 
 ## Ocasions for being Merry
